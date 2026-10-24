@@ -1,2 +1,5 @@
 # Example-1
 Example repo for training
+I'm baby soft launch lynch gorpcore chia, needle felting koji wide-leg mate mullet tufting. Waistcoat yr cred bruh. Pinterest soft launch breadcrumbing vibecession twee birkenstocks green juice chartreuse knausgaard freegan. Chartreuse messenger bag gravel bike super 8 yr nose to tail fashion axe muji third place copper mug indigo dye. Chillwave carhartt listicle, cloud bread sus heirloom neutral milk hotel marxism synth bicycle rights hashtag. Vagus nerve 3 wolf moon matcha viral. Gatekeep Brooklyn rams cupping breadcrumbing neutral milk hotel.
+
+Thrifted car seat headrest hell of, craft beer YIMBY gluten-free 8-bit aeropress y2k adaptogen fitzcarraldo ube claire denis. Solarpunk gentrify attachment style migas air plant post-rock iPhone fashion axe PBR&B. Hyperpop v60 wolf criterion jianbing meh, four dollar toast mubi neutral milk hotel focaccia conservas shoreditch burrata nose to tail. Fiddle leaf godard focaccia, gatekeep polycule margiela black garlic lumbersexual salvia umami grailed chillwave. Fanny pack yuccie marfa kombucha, heirloom asymmetrical claire saffitz cupping caviar bump.
